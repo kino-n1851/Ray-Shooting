@@ -3,7 +3,7 @@
 2018年~2019年にかけて学校祭での出展を主導した。  
 ![Image 1](images/DSC_2851.jpg)
 企画の様子
-![Image 2](images/DSC_2850.png)
+![Image 2](images/DSC_2450.png)
 
 1年目の構成  
 レーザ銃  
